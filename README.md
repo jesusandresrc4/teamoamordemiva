@@ -1,2 +1,0 @@
-# teamoamordemiva
-te amo
